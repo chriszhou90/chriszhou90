@@ -8,6 +8,12 @@
 
 🤔 目前关注AI大模型，Agent，具身智能，世界模型，金融量化等领域。
 
+📧 My email chris.zhou@aliyun.com
+
+㊙️ My wechat ID chriszhou_01
+
+🏢 Shanghai
+
 
 
 
